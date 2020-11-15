@@ -1,4 +1,6 @@
-最新地址：<a href="http://www.chaokav.com">http://www.chaokav.com</a> 备用地址：<a href="http://www.chaokav1.com">http://www.chaokav1.com</a>
+永久地址（需翻墙)：<a href="http://www.chaokav.com">http://www.chaokav.com</a> 
+最新地址1：<a href="http://www.chaokav1.com">http://www.chaokav1.com</a> 
+最新地址2：<a href="http://www.chaokav2.com">http://www.chaokav2.com</a>
 
 当你发现超快色色网地址不能正常访问时，打开此发布页即可获取本站最新可用地址
 
