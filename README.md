@@ -1,10 +1,14 @@
+最新地址：<a href="https://www.ckss5.com">https://www.ckss5.com</a> 
+
+即将失效地址1：<a href="https://www.ckss3.com">https://www.ckss3.com</a>
+
+即将失效地址2：<a href="https://www.chaokav1.com">https://www.chaokav1.com</a> 
+
+即将失效地址3：<a href="https://www.chaokav2.com">https://www.chaokav2.com</a>
+
 永久地址（需翻墙)：<a href="https://www.chaokav.com">https://www.chaokav.com</a> 
 
-最新地址1(已跳转)：<a href="https://www.chaokav1.com">https://www.chaokav1.com</a> 
-
-最新地址2：<a href="https://www.chaokav2.com">https://www.chaokav2.com</a>
-
-最新地址3：<a href="https://www.ckss3.com">https://www.ckss3.com</a>
+请记住最新地址，旧网址只是暂时能访问。
 
 当你发现超快色色网地址不能正常访问时，打开此发布页即可获取本站最新可用地址
 
